@@ -32,7 +32,7 @@ Web and Graphic Designer</h2>
 
 ### 💼 Where I Work:
 - Currently honing my skills and creativity at Indev Consultancy Pvt Ltd.
-- Know about my experiences https://www.linkedin.com/in/guriya-kumari-496507262/](https://in.linkedin.com/in/anjani-pandit-0ab9a3203
+- Know about my experiences https://www.linkedin.com/in/anjani-pandit-0ab9a3203/
 
 
 
